@@ -4,7 +4,7 @@
 https://meet.google.com/ugx-iskt-vbc
 
 **Online Session MS-Teams Link for all sessions:**<br>
-https://tinyurl.com/4hnacrps
+https://tinyurl.com/2xfbsmfs
 
 **Project Group Formation (1) Link for Batch-1:**<br>
 https://bit.ly/3JCZdCx
